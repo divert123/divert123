@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @divert123
+- 👀 I’m interested in namada project
